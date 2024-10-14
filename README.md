@@ -2,7 +2,7 @@
 - 👀 I’m interested in Lego
 - 🌱 I’m currently learning python and IA
 - 💞️ I’m looking to collaborate on IA projects
-- 📫 How to reach me rcastillo@camaravalencia.com
+- 📫 How to reach me rcastillotic@gmail.com
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: I have minifigs enough to do more than 25 times my height
 
